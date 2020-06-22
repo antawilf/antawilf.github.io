@@ -6,5 +6,6 @@ Peter Michael Falk war ein US-amerikanischer Schauspieler und Filmproduzent, der
 * verschroben
 * kompliziert
 * tierlieb
-> I’ve always been more interested
-> in the future than in the past.
+
+Zitat:
+> Einen habe ich noch
