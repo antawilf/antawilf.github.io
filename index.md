@@ -9,3 +9,5 @@ Peter Michael Falk war ein US-amerikanischer Schauspieler und Filmproduzent, der
 
 Zitat:
 > Einen habe ich noch
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Peter_Falk_Columbo_monument.JPG/640px-Peter_Falk_Columbo_monument.JPG"/>
