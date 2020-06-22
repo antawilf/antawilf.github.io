@@ -6,3 +6,6 @@ Peter Michael Falk war ein US-amerikanischer Schauspieler und Filmproduzent, der
 * verschroben
 * kompliziert
 * tierlieb
+
+Zitat:
+> Einen habe ich noch
